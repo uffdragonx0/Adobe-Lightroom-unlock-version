@@ -1,0 +1,1 @@
+# Adobe-Lightroom-unlock-version
